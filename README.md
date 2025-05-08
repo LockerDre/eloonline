@@ -19,3 +19,7 @@ A szabadidős tevékenységek között is egyre hangsúlyosabb szerepet kapnak a
 A városi élet dinamikája is sokat változott az elmúlt években. A közösségi terek új formái, mint a coworking irodák, közösségi kertek vagy pop-up művészeti projektek, mind azt mutatják, hogy az emberek egyre inkább keresik azokat a helyeket, ahol egyszerre élhetik meg az egyéni és a közösségi élményeket. Ezek a helyszínek gyakran szolgálnak olyan találkozópontként is, ahol a hagyományos és digitális kultúra egymás mellett létezik.
 
 Európa városai tehát számos lehetőséget kínálnak az új élmények felfedezésére, legyen szó természeti szépségekről, kulturális gazdagságról vagy a modern technológia nyújtotta innovációkról. Magyarország ezen a téren is élen jár, hiszen mind vidéken, mind a fővárosban bőven akadnak olyan kezdeményezések, amelyek segítenek összekapcsolni a múlt értékeit a jelen újításaival.
+
+Releváns források:
+[Ritka kincsek nyomában](https://uberant.com/article/2100168-azonnalikifizetes/)
+[Egyre népszerűbb városi úti célok Európában](https://temp-yxqkczvprxhybdxysskz.jouwweb.site/kulfoldi-online)
