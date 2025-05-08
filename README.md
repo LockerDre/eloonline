@@ -21,5 +21,7 @@ A városi élet dinamikája is sokat változott az elmúlt években. A közöss�
 Európa városai tehát számos lehetőséget kínálnak az új élmények felfedezésére, legyen szó természeti szépségekről, kulturális gazdagságról vagy a modern technológia nyújtotta innovációkról. Magyarország ezen a téren is élen jár, hiszen mind vidéken, mind a fővárosban bőven akadnak olyan kezdeményezések, amelyek segítenek összekapcsolni a múlt értékeit a jelen újításaival.
 
 Releváns források:
+
 [Ritka kincsek nyomában](https://uberant.com/article/2100168-azonnalikifizetes/)
+
 [Egyre népszerűbb városi úti célok Európában](https://temp-yxqkczvprxhybdxysskz.jouwweb.site/kulfoldi-online)
